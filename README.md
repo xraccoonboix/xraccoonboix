@@ -1,0 +1,8 @@
+- Hi, I’m Ethan Carlin
+- I’m interested in gaming, skating, and music
+- How to reach me :
+- Instagram : 10000._.days
+- Snapchat : ecarlin28
+- Discord : Racc#4064
+- Facebook : Xytrax Carlin
+- Twitter : @ethangamer2016
